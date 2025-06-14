@@ -1,5 +1,5 @@
 - 
-Hola, yo soy    @jhondainerarias
+Hola, yo soy    @jhonarias
 
 - 🌱 Estoy aprendiendo...diseño de sofware
 
